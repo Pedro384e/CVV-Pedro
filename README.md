@@ -24,8 +24,6 @@ Habilidades
 
 Proyectos
 
-[Aquí puedes describir tus proyectos]
+
 
 ---
-
-¿Te gustaría que personalice alguna sección específica o agregue más detalles a tu CV?
