@@ -22,6 +22,8 @@ CCNA: Introducción a las redes - programa Cisco Networking Academy-2025-2025
 
 ## 📫 Contacto
 23240325@correro.ejemplo.com
+https://www.linkedin.com/in/sandoval-cuevas-pedro-9b4058369?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+https://github.com/Pedro384e
 
 
 ---
